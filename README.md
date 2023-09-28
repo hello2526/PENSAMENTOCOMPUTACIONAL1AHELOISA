@@ -1,0 +1,2 @@
+# PENSAMENTOCOMPUTACIONAL1AHELOISA
+turma 1A, colegio CEMAG professora Janinha
